@@ -1,2 +1,0 @@
-# Samarth-Calibrations
-Samarth Calibrations
